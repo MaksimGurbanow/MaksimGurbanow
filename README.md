@@ -9,7 +9,7 @@
 ### Place
 Cukurova University State Conservatory. Adana, Turkey.
 ### Field
-Music, piano class. First year
+Music, piano class
 <br>
 
 ---
